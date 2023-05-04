@@ -1,1 +1,1 @@
-# clase-6
+# tarea-n6
